@@ -1,0 +1,1 @@
+Professor, me confundi e dei o git push da parte 2 com o mesmo nome da parte 1.
